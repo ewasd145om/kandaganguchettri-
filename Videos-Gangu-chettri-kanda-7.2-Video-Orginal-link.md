@@ -1,6 +1,14 @@
 gangu chettri kanda telegram gangu chhetri kanda telegram
 
-Gangu Chettri Kanda: The Viral Telegram Controversy That Shocked Nepali Social Media
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 In recent weeks, the name Gangu Chettri has been trending across various platforms, especially on Telegram and TikTok, due to a viral video that sparked widespread attention and controversy. Commonly referred to as the “Gangu Chettri Kanda”, the incident has ignited a debate on privacy, digital ethics, and the dark side of viral internet culture in Nepal.
 
